@@ -5,3 +5,5 @@ Learning Github
 Ñuqa Limamantam kani
 Ñuqa Washingtopim tiyani
 
+Tawa chunka kimsayuq
+Misichay kan
