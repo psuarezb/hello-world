@@ -6,4 +6,6 @@ Learning Github
 Ñuqa Washingtopim tiyani
 
 Tawa chunka kimsayuq
-Misichay kan
+
+Manam aqlluychu kan
+
